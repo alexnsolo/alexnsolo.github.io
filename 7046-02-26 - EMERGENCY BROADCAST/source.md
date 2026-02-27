@@ -12,7 +12,7 @@ _The Throne Room has not been used for a public address in over four hundred yea
 
 **[ARCHIVAL FOOTAGE: THE OUTER RIM, 8 MONTHS AGO]**
 
-_Automated survey drones captured the first images of The Consumption on the Outer Rim. A star — Velis-Orun, catalogue number KR-7741, home to three inhabited worlds and a combined population of eleven billion — dims. Not the slow dimming of stellar death. A sudden, hungry dimming. In eleven days, it is gone. Where a solar system once existed, there is only a low hum of restructured matter and the distant mechanical signature of something building. The three worlds and their eleven billion are not mentioned again in any Imperial census._
+_Automated survey drones captured images of The Consumption on the Outer Rim. A star — Velis-Orun, catalogue number KR-7741, home to three inhabited worlds and a combined population of eleven billion — dims. Not the slow dimming of stellar death. A sudden, hungry dimming. In eleven days, it is gone. Where a solar system once existed, there is only a low hum of restructured matter and the distant mechanical signature of something building. The three worlds and their eleven billion are not mentioned again in any Imperial census._
 
 ---
 
